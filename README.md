@@ -7,3 +7,5 @@ This website basically gives guidance to students who have recently passed their
 ![Screenshot (188)](https://github.com/Wadhwana-dhairya/Career-Vision-Guidance/assets/133404645/d8281e8d-6173-4dad-8c22-d0be8ed2e94a)
 ![Screenshot (189)](https://github.com/Wadhwana-dhairya/Career-Vision-Guidance/assets/133404645/6f08b9fd-2d67-4f8a-9a7f-aa3c8f3bfd1b)
 ![Screenshot (190)](https://github.com/Wadhwana-dhairya/Career-Vision-Guidance/assets/133404645/110df487-502f-4787-931e-056e06b16d84)
+![Screenshot (191)](https://github.com/Wadhwana-dhairya/Career-Vision-Guidance/assets/133404645/5d534bbb-eb5e-4418-99c1-244e05111c24)
+![Screenshot (192)](https://github.com/Wadhwana-dhairya/Career-Vision-Guidance/assets/133404645/43c74dc7-14c0-47b4-9753-588e9b99fece)
